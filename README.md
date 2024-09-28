@@ -6,3 +6,8 @@ Será um dia inteiro de atividades, com palcos formados exclusivamente por mulhe
 
 Nossa palestra sobre como iniciar na área de Cloud ficará dísponivel aqui!
 Aproveito para te convidar para nos seguir!
+
+
+Link da palestra!
+
+https://www.canva.com/design/DAGR5t7CLqU/nC7NvYgY5S86fa1xY7mvxQ/edit?utm_content=DAGR5t7CLqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
